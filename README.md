@@ -6,7 +6,7 @@
 
 ![秘笈](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1602558178732&di=815ba1bed3975e6cd59d87c41b4a0177&imgtype=0&src=http%3A%2F%2Fimg.mp.itc.cn%2Fupload%2F20161005%2Fa7f090d29d1a49269ac85b52b0eaca18_th.jpg)
 
-从此苦练神功，然终无所成，沉迷万维网世界，顺序如下
+从此苦练神功，然终无所成，沉迷万维世界，顺序如下
 
 1. 魔兽世界
 2. Dota
